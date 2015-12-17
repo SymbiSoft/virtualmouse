@@ -1,0 +1,2 @@
+This is only a phone app.not pc remot.
+.i have no mobile or pc.i learned python using xplore.whem iam aged 16.i had a 6600 on 2011 .but it damaged.iam going to buy a old e90.i like hp nc6000.but i have no money. Ok come to the point_this app is used to change your phone as a virtual pc.it can used with bt on java,symbian...or any phone.motion detection can use with it. Very good app._<img src='http://abilashov.wen9.com/my.png'><img src='http://abilashov.wen9.com/me.png'>
